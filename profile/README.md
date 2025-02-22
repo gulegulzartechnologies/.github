@@ -1,4 +1,4 @@
-# [gulegulzartechnologies.github.io](https://gulegulzartechnologies.github.io)
+# [technologies.gulegulzar.in](https://technologies.gulegulzar.in)
 
 <!--
 
